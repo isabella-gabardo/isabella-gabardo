@@ -1,4 +1,4 @@
-## eu sou /Maria Isabella/ 🫀 🌕 🌷 ##
+## eu sou Maria Isabella 🫀 🌕 🌷 ##
 - estudante
 - católica
 - toco violão
