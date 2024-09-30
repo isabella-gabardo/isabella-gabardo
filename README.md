@@ -1,5 +1,5 @@
 ## eu sou _Maria Isabella_ 🫀 🌕 🌷 ##
-- estudante
+- estudante do JavaScript
 - católica
 - toco violão
 - apaixonada no céu e suas obras de arte
